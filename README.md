@@ -45,7 +45,7 @@
 [外语网页看不懂怎么办？一招教你屏幕实时翻译外语网页！](https://www.bilibili.com/opus/963570187931484197)<br>
 [这个软件翻译日语文献资料精准度，真的太强了!!](https://www.bilibili.com/opus/966175334469730326)<br>
 [萌新必备！手机无字幕视频翻译教程！轻松看懂外语视频！](https://www.bilibili.com/opus/967294276555767812?spm_id_from=333.999.0.0)<br>
-"[来看看我是如何用一分钟翻译整个法语文献资料成中文的！超简单！疯狂翻译师]"(https://www.bilibili.com/opus/969889381686968345)<br>
+[来看看我是如何用一分钟翻译整个法语文献资料成中文的！超简单！疯狂翻译师](https://www.bilibili.com/opus/969889381686968345)<br>
 [【追星人必备】超实用屏幕实时翻译教程!终于离爱豆又更近一步啦！](https://www.bilibili.com/opus/971348223164678151?spm_id_from=333.999.0.0)<br>
 [今年最火的视频字幕翻译天梯版教程！日语视频秒翻译成中文视频！速来查看！](https://www.bilibili.com/opus/972463123682295827)<br>
 [快来试试！超强图片翻译工具，外贸工作效率up up！](https://www.bilibili.com/read/cv38294853/?jump_opus=1)<br>
